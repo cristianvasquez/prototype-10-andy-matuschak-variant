@@ -1,5 +1,5 @@
 
-Experiment stopped. I don't feel identified.
+Experiment stopped. Not my thing
 
 # Prototype_10
 
